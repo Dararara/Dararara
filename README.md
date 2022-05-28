@@ -2,4 +2,4 @@
 
 中文 可、English OK，日本語 ギリギリ。
 
-![:dararara](https://count.getloli.com/get/@:dararara)
+![:dararara](https://count.getloli.com/get/@:dararara?theme=moebooru)
